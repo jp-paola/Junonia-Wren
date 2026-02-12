@@ -5,7 +5,7 @@
 
 ## 🧑‍💻 Sobre mí
 
-¡Hola! Soy **Junonia Wren** , una desarrolladora apasionada por la creación de videojuegos y escenarios de Realidad Virtual.
+¡Hola! Soy **Johana Paola** , una desarrolladora apasionada por la creación de videojuegos y escenarios de Realidad Virtual.
 
 ### 🚀 ¿Qué hago?
 
